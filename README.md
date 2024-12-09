@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @terefeda
+- 👋 Hi, I’m @terefedaasd
 - 👀 I’m interested in ...546
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ererdsf
