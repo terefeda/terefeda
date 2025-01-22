@@ -1,7 +1,7 @@
 5- 👋 Hi, I’m @terefedaasd
 - 👀 I’m interested in ...546
 - 🌱 I’m currently learning ...6396
-- 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf
+- 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf4774
 - 📫 How to reach me ...55622323erger
 - 😄 Pronouns: ...zbczx9569
 - ⚡ Fun fact: ...jil
