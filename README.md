@@ -1,4 +1,4 @@
-5- 👋 Hi, I’m @terefedaasd
+54455- 👋 Hi, I’m @terefedaasd
 - 👀 I’m interested in ...546
 - 🌱 I’m currently learning ...6396k,k,
 - 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf4774gfb
