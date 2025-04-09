@@ -1,6 +1,6 @@
 54455454455- 👋 Hi, I’m @terefedaasdcsdc
 - 👀 I’m interested in ...5469trhvd
-- 🌱 I’m currently learning ...6396k,k,84956+6xcvvcx
+- 🌱 I’m currently learning ...6396k,k,84956+6xcvvcxnb 
 - 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf4774gfbass62mbmn
 - 📫 How to reach me ...55622323ergerxcvhfggbf666gbfgfwrelk.l.cvbcvbxcvvxcsff
 - 😄 Pronouns: ...zbczx9569sdf1441xv dgscgf,jkj23
