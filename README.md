@@ -1,6 +1,6 @@
 erewrweweqwqeqqq    qqqqs54455454455- 👋 Hi, I’m @terefedaasdcsdcedsxcvxxx
 - 👀 I’m interested in ...5469trhvd6fgfggfghwrereweqw
-- 🌱 I’m currently learning ...6396k,k,84956+6xcvvcxnb mjmjhfg
+- 🌱 I’m currently learning ...6396k,k,84956+6xcvvcxnb mjmjhfgukuikui
 - 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf4774gfbass62mbmngyjhvvbvnbbvwwwfghnhgdffd
 - 📫 How to reach me ...55622323ergerxcvhfggbf666gbfgfwrelk.l.cvbcvbxcvvxcsffdddxvxcgmjhb
 - 😄 Pronouns: ...zbczx9569sdf1441xv dgscgf,jkj23hetd
