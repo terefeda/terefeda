@@ -4,7 +4,7 @@ erewrweweqwqeqqq    qqqqs54455454455- 👋 Hi, I’m @terefedaasdcsdcedsxcvxxx
 - 💞️ I’m looking to collaborate on ...e78rerdsf8552sdf4774gfbass62mbmngyjhvvbvnbbvwwwfghnhgdffd
 - 📫 How to reach me ...55622323ergerxcvhfggbf666gbfgfwrelk.l.cvbcvbxcvvxcsffdddxvxcgmjhb
 - 😄 Pronouns: ...zbczx9569sdf1441xv dgscgf,jkj23hetd
-- ⚡ Fun fact: ...jil8152541156478585596gfbvbvbvbvnvb
+- ⚡ Fun fact: ...jil8152541156478585596gfbvbvbvbvnvbghjjgh
 uiosfd46587lgj5555151rgtsdf022fdvdfnghghgxcvxcxcegrgrgr
 <!---s555555dgf47448533662453hngbvh
 --->fgdffff
